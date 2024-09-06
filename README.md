@@ -10,6 +10,7 @@ i really like:
 - vocaloid
 
 as for pony game irdgaf just dont roleplay with me :p im usually afk/spectating so w2i probably
+
 the do not disturb icon also doesnt really mean anything i just like having it set as that!
 <!--
 **otometalmylife/otometalmylife** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
